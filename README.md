@@ -4,4 +4,4 @@ Darwinian Theory
 
 ## Other quotes
 
-be wise
+be wise if it reflects on the other side
